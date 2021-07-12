@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Fxicity
+- 👀 I’m interested in Game Development, Gaming and Music.
+- 🌱 I’m currently learning How to Code.
+- 📫 If you want to, you can email me at rossdarcy0105@gmail.com
